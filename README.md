@@ -1,0 +1,13 @@
+# python_all_basic-_topics
+
+HI GUYS✌😊
+
+ -> THIS  REPOSITORY CONTAIN ALL BEGINNER LEVEL AND BASIC TOPICS IN PYTHON
+ ->THIS WILL HELP YOU TO LEARN ALL BASICS IN PYTHON 
+ 
+ 
+ "HARD WORK BEATS TALENT" 
+                         - LEARNER🎇
+
+
+
